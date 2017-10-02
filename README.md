@@ -1,0 +1,2 @@
+# onlycom
+blogspot
